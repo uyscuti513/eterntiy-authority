@@ -1,3 +1,5 @@
+## Worry does not empty tomorrow of its sorrow, it empties today of its strength.
+
 ### Hi there 👋, My name is Marko K.
 
 <div align="center">
