@@ -1,4 +1,4 @@
-# Worry does not empty tomorrow of its sorrow, it empties today of its strength.
+# You were not born a winner, and you were not born a loser. You are what you make yourself to be.
 
 <div align="center">
   <h2>Hi there 👋, My name is Marko K.</h2>
